@@ -1,10 +1,10 @@
 #  About Me 👍🏻:
-Currently Working On 👷🏼: I'm currently working on small side projects that i find fun and helpful to me and my friends.
+Currently Working On 👷🏼: I'm currently working on small side projects that I find fun and helpful to me and my friends.
 <br><br>Collaboration 👥: I'm looking to collaborate with anyone in order to make things that are helpful and needed <br>by people around me and online.
 <br><br>What I Need Help With 🆘: I'm looking for help with coding and getting more of my languages understood and under my belt.
 <br><br>What Im Learing 🧑🏼‍🎓: I am currently learning software devolpment at GGC along with self teaching myself other<br>coding languages on the side in my own time.
 <br><br>Questions 🙋🏼‍♂️: Ask me about anything, im opening to any questions or concerns!
-<br><br>Fun Facts 🎉: I love cooking, I bake in my free time, most all of my other time is spent at my desk<br>creating new projects, working on class oreinted things, or creating and editing web videos.
+<br><br>Fun Facts 🎉: I love cooking, I bake in my free time, most all of my other time is spent at my desk<br>creating new projects, working on class oriented things, or creating and editing web videos.
 
 
 ## 🌐 Socials:
